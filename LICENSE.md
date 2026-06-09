@@ -1,4 +1,4 @@
-# 
+# Exclusivo geckoterminal sniper bot scripts para Mac OS | Premium geckoterminal sniper bot scripts para PC Windows. Com suporte multi-chain e extração MEV — otimizado para máximo desempeño en cada plataforma.
 
 
 
